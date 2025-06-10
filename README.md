@@ -1,2 +1,0 @@
-# TrabalhoHogwarts
-Trabalho Angelo Mesquita
